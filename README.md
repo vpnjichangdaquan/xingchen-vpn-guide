@@ -22,7 +22,7 @@
 
 ### 星辰VPN官网注册入口
 
-👉 [星辰VPN官网注册入口](https://xc1.luniu8.com/?code=K6FEbDcS)
+👉 [星辰VPN官网注册入口](https://a.wwaann.com/?s=xcvpn)
 
 如果访问不了，可以[点击此处](https://wwaann.com/)查看其他可用机场。
 
@@ -32,7 +32,7 @@
 
 星辰VPN注册入口：
 
-[注册星辰vpn](https://xc1.luniu8.com/?code=K6FEbDcS)
+[注册星辰vpn](https://a.wwaann.com/?s=xcvpn)
 
 注册完成后，可以根据页面提示登录账号并选择适合自己的服务。
 
