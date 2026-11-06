@@ -22,9 +22,9 @@
 
 ### 星辰VPN官网注册入口
 
-👉 [星辰VPN官网注册入口](https://a.wwaann.com/?s=xcvpn)
+👉 [星辰VPN官网注册入口](https://a.ggddxx.com/?s=xcvpn)
 
-如果访问不了，可以[点击此处](https://wwaann.com/)查看其他可用机场。
+如果访问不了，可以[点击此处](https://ggddxx.com/)查看其他可用机场。
 
 ---
 
@@ -32,7 +32,7 @@
 
 星辰VPN注册入口：
 
-[注册星辰vpn](https://a.wwaann.com/?s=xcvpn)
+[注册星辰vpn](https://a.ggddxx.com/?s=xcvpn)
 
 注册完成后，可以根据页面提示登录账号并选择适合自己的服务。
 
@@ -96,7 +96,7 @@ iPhone 和 iPad 用户安装对应客户端，登录账号后根据客户端提�
 
 如果星辰VPN官网暂时无法访问，可以：
 
-[点击此处查看其他可用机场](https://wwaann.com/)
+[点击此处查看其他可用机场](https://ggddxx.com/)
 
 ---
 
@@ -104,7 +104,7 @@ iPhone 和 iPad 用户安装对应客户端，登录账号后根据客户端提�
 
 如果星辰VPN无法访问，或者希望寻找其他机场，可以访问：
 
-[其他可用机场](https://wwaann.com/)
+[其他可用机场](https://ggddxx.com/)
 
 ---
 
